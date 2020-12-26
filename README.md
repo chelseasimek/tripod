@@ -1,0 +1,1 @@
+chelseasimek.com/tripod
